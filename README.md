@@ -1,1 +1,0 @@
-# Practical_pfc_ARYA-SINGH-10287
